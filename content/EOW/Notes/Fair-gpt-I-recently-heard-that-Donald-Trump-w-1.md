@@ -1,0 +1,12 @@
+---
+category: theophysics-research
+date: '2025-08-26'
+status: published
+tags:
+- o
+- theophysics
+- eow
+title: Fair gpt I recently heard that Donald Trump was in...
+---
+
+Fair gpt I recently heard that Donald Trump was invited by the Jewish Sanhedrin to an international divine court in Israel is this correct Yes that's correct the nascent Sanhedrin invited Donald Trump to support the creation of an international divine court based on the seven noah hide laws yes to 7 Noah hide laws we find this in the Jewish town mode correct Yes the 7 Noah hide laws are derived from Jewish tradition and are found in the Talmud Now correct me if I'm wrong the consequences for breaking one of these noah hide laws would be capital punishment is that correct In ancient interpretations found in the Tilnet breaking the noahide laws is described as warranting capital punishment However these interpretations are not reflective of modern practices
