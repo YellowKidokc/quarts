@@ -1,0 +1,1 @@
+Quanta: In quantum mechanics, the smallest discrete amount of any physical property, such as energy or matter. This concept suggests that these properties are not continuous, but exist in tiny, indivisible units.
